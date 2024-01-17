@@ -1,1 +1,2 @@
-"Rachel Mallonee" 
+Rachel Mallonee
+malloner@oregonstate.edu 
