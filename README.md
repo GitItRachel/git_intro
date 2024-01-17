@@ -1,2 +1,3 @@
 Rachel Mallonee
-malloner@oregonstate.edu 
+malloner@oregonstate.edu
+purple 
