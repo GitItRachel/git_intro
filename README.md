@@ -1,3 +1,5 @@
 Rachel Mallonee
 malloner@oregonstate.edu
-purple 
+purple
+7
+Paramore
